@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me insta
-- 😄 Pronouns: ...
+- 😄 Pronouns: al ban
 - ⚡ Fun fact: I lie macroud
 
 <!---
