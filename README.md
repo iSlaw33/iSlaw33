@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @iSlaw33
 - 👀 I’m interested in formula 1
 - 🌱 I’m currently learning english
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on solana
 - 📫 How to reach me insta
 - 😄 Pronouns: al ban
 - ⚡ Fun fact: I lie macroud
