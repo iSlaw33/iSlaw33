@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iSlaw33
+- 👋 Hi, I’m @iSlaw33 from france
 - 👀 I’m interested in formula 1
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on solana
